@@ -1,0 +1,1 @@
+This recipe is about chocolate chip brownies. The brownies are soft and gooey and is perfect for chocolate lovers! 
